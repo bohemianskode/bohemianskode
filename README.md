@@ -1,10 +1,5 @@
 - 👋 Hi, Saya @bohemianskode
-- 👀 Saya Butuh Kawan ...
-- 🌱 untuk Memanen DATA di Github ...
-- 💞️ Apakah anda Senang Bergabung Dengan Saya ...
-- 📫 Harap dibalas yah. thanks ...
 
-<!---
-bohemianskode/bohemianskode is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+![240_F_178655009_71VrmytH7pf3zJQAihoa84pog8SXJwxH](https://user-images.githubusercontent.com/68543155/222849370-38bd0f07-9546-4916-9e74-620a0bb7fa57.jpg)
+
+Senang Bisa Berkenalan Dengan Anda
