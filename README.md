@@ -1,7 +1,7 @@
 - 👋 Hi, Saya @bohemianskode ✅
 
 
-- 
-![240_F_210576508_gciO2asiY7IB5sA7gSZEHrqXsSlQKctq](https://user-images.githubusercontent.com/68543155/222852547-bad14727-5a79-4a4c-b2b7-74f6855cd8c6.jpg)
+![240_F_332215667_FRtsNh6JCtsstNqBlLmiP5dixFFWNJfS](https://user-images.githubusercontent.com/68543155/223193995-7a77c64c-b6fd-4066-806a-c4930b929759.jpg)
+
 
 Senang Bisa Berkenalan Dengan Anda👋👋👋✅
